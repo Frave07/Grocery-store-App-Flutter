@@ -7,7 +7,7 @@ Frave Programmer
 Puedes seguirme en mis redes
 
 - [FACEBOOK](https://www.facebook.com/fraveProgrammer)
-- [INSTAGRAM](https://www.instagram.com/_frave)
+- [INSTAGRAM](https://www.instagram.com/frave_developer)
 
 ## Screenshots
 
